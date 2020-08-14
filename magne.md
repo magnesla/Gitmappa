@@ -1,4 +1,4 @@
-Magne Hemmelig navn
+Magne Hemmelig navns
 # Dansekurå
 ## Dansekurå v2
 
