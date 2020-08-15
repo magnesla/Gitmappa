@@ -4,3 +4,7 @@ Magne Hemmelig navns
 
 __Hva skjer her da?__
 **Hvem er du?**
+fffff
+fdfdf
+fdfd
+fdfd
